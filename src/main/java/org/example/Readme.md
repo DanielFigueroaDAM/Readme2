@@ -15,3 +15,5 @@ Hoy en día, la situación sigue siendo crítica en términos de seguridad y der
 - Factor 1: Historial de ocupación y conflictos.
 - Factor 2: Derechos humanos en la región.
 - Factor 3: Iniciativas internacionales de paz.
+
+![paloma](https://www.agroanimal.es/blog/wp-content/uploads/2021/04/pareja-palomas-3.jpg)  
