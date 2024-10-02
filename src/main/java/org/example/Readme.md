@@ -9,3 +9,9 @@ Hoy en día, la situación sigue siendo crítica en términos de seguridad y der
 ***Todo es importante*** cuando hablamos del contexto histórico, político y humano del conflicto.
 
 > "Es más fácil hacer la guerra que la paz" - Aristóteles.
+
+### Factores a considerar
+
+- Factor 1: Historial de ocupación y conflictos.
+- Factor 2: Derechos humanos en la región.
+- Factor 3: Iniciativas internacionales de paz.
