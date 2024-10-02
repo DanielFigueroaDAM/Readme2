@@ -16,4 +16,4 @@ Hoy en día, la situación sigue siendo crítica en términos de seguridad y der
 - Factor 2: Derechos humanos en la región.
 - Factor 3: Iniciativas internacionales de paz.
 
-![paloma](https://www.agroanimal.es/blog/wp-content/uploads/2021/04/pareja-palomas-3.jpg)  
+![palestinaisrael](https://images.theconversation.com/files/554746/original/file-20231019-15-85t908.jpg?ixlib=rb-4.1.0&rect=24%2C107%2C2760%2C1380&q=45&auto=format&w=1356&h=668&fit=crop)  
