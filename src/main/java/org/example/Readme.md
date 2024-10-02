@@ -8,3 +8,4 @@ Los *puntos clave* incluyen la creación de Israel en 1948 y la disputa territor
 Hoy en día, la situación sigue siendo crítica en términos de seguridad y derechos humanos para ambas partes, palestinos e israelíes. El conflicto afecta tanto a la política internacional como a la vida cotidiana en la región.
 ***Todo es importante*** cuando hablamos del contexto histórico, político y humano del conflicto.
 
+> "Es más fácil hacer la guerra que la paz" - Aristóteles.
